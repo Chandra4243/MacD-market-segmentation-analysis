@@ -67,5 +67,5 @@ The Critics: An older, predominantly male segment that finds McDonald's expensiv
 
 The Pragmatists: A segment that doesn't love or hate the brand but finds it cheap and convenient.
 
-Contact - chandr4243@gmai.com
+Contact - chandr4243@gmail.com
 Created by Chandrabhushan Upadhyay - feel free to reach out!
